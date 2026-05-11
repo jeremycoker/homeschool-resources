@@ -1,1 +1,1 @@
-# homeschool-resources
+# educational-resources
